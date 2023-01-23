@@ -1,2 +1,2 @@
 # CA-Ant-Inventory-
-Place to buy ants
+A safe and reliable place to purchase ants within California
